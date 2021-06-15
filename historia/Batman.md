@@ -1,0 +1,1 @@
+Batman n° 1 destacó por incluir por primera vez a los recurrentes Catwoman y Joker. En el relato, Batman mata a unos monstruos gigantes con un arma de fuego. El editor Whitney Ellsworth, inconforme con este rasgo, fue uno de los primeros en oponerse a que Batman se enfrentase a sus rivales con una pistola a partir de esa publicación
